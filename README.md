@@ -16,3 +16,5 @@ https://goo.gl/KbUroF
 
 Course outline
 https://goo.gl/qwoSft
+
+Brad Garner
